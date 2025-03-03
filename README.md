@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student
+Hello everyone, I am Pham Hoang Nhan
 
 
 ## 🌐 Socials:
